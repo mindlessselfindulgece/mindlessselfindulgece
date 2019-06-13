@@ -1,1 +1,1 @@
-# mindlessselfindulgece
+# mindlessselfindulgece.github.io
